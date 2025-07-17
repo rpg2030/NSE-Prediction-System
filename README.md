@@ -399,8 +399,8 @@ Distributed under the MIT License. See `LICENSE` for details.
 
 ## 📬 Contact
 
-**Saumya Thakor**  
-[LinkedIn](linkedin.com/in/saumya-thakor-313abb1b1/) •• saumyathakor2003@example.com
+**Rutul Gajjar**  
+[LinkedIn](https://www.linkedin.com/in/rutulgajjar42) •• rutulgajjar0203@gmail.com
 
 ---
 
